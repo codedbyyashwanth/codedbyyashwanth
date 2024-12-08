@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://twitter.com/yashwanthmy2" target="blank"><img src="https://img.shields.io/twitter/follow/yashwanthmy2?logo=twitter&style=for-the-badge" alt="yashwanthmy2" /></a> </p>
 
-- 📫 How to reach me **yashmy01@gmail.com**
+- 📫 How to reach me **yashwanth.yallappam@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
